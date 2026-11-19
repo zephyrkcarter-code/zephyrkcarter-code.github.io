@@ -1,0 +1,2 @@
+# This as of 2026 is a Repo for games I have made using AI - this is for personal 
+# entertainment, not profit. If anyone's work is displayed here and they wish to have it taken down, please contact ASAP. Again, this is for FUN, nothing else. 
